@@ -5,4 +5,6 @@
 
 ** 官方地址：[5i吃瓜网](https://5icgw.com)
 
+** 官方地址：[吾爱吃瓜网](https://wuaichigua.com)
+
 ** 官方邮箱实时获取最新访问地址：[5i吃瓜网邮箱](chiguawuai@gmail.com)
